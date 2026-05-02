@@ -1,2 +1,5 @@
+# Updated Ways to Earn Online in 2026 (Minimal Knowledge Required)
 
-(Answer daily surveys Africa.It really pays only if you're keen on answering)[https://invite.sagapoll.com/C32HC]
+1. **Answer daily surveys (Africa-focused)**  
+   It really pays only if you're keen on answering consistently.  
+   👉 [https://invite.sagapoll.com/C32HC](https://invite.sagapoll.com/C32HC)
