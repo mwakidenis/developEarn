@@ -1,4 +1,4 @@
-# Earn Online in 2026 (Minimal Knowledge Required)
+**Earn Online in 2026 (Minimal Knowledge Required)**
 
 1. **Answer daily surveys (Africa-focused)**  
    It really pays only if you're keen on answering consistently.  
